@@ -1,1 +1,1 @@
-# chypachyps
+# chypachyps таких детей я называю чупачупсами
